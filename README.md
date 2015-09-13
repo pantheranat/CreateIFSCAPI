@@ -71,7 +71,7 @@ Vajrakarur, Anantapur
 State bank of India ifsc code for Vajrakarur is SBIN0002804 as per the RBI. The SBI MICR code for Vajrakarur is 515002832. Sbi customer care phone number for Vajrakarur branch is IP:904656,08496-259391/259131.
 
 Adb Anantapur, Anantapur
-State bank of India ifsc code for Adb Anantapur is SBIN0003200 as per the RBI. The SBI MICR code for Adb Anantapur is 515002102. Sbi customer care phone number for Adb Anantapur branch is IP:904401, 08554-220181, 274114.
+State bank of India ifsc code for Adb Anantapur is SBIN0003200 as per the RBI. The SBI MICR code for Adb Anantapur is 515002102. Sbi customer care phone number for Adb Anantapur branch is IP:904401, 08554-220181, 274114. Meanwhile have a look <a href="http://www.nicacresults.com/ifsc-codes/sbi-ifsc-codes-of-top-branches-in-kolkata-area/">this page</a> to find top SBI branches of Kolkata.
 
 Tadipatri Bazaar, Anantapur
 State bank of India ifsc code for Tadipatri Bazaar is SBIN0004189 as per the RBI. The SBI MICR code for Tadipatri Bazaar is 515002030. Sbi customer care phone number for Tadipatri Bazaar branch is 990216, 08558-221866,221833.
